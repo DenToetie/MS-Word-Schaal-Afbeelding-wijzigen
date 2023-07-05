@@ -1,0 +1,1 @@
+# MS-Word-Schaal-Afbeelding-wijzigen
